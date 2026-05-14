@@ -1,4 +1,4 @@
-
+Get ahead in escape tsunami for brainrots with premium Scripts for escape tsunami for brainrots, featuring no clip and infinite resources. Download now to dominate every match
 
 
 
